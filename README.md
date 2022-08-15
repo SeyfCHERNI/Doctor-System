@@ -1,0 +1,2 @@
+# Women-Empowerment
+Est une organisation de femmes à leur meilleur qui aide les autres femmes à être à leur meilleur. En tant qu'organisation bénévole, la société est particulièrement qualifiée pour aider les femmes et les filles à vivre leurs rêves. Il est vrai que les hommes et les femmes vivent dans la pauvreté, sont victimes de discrimination et doivent surmonter les obstacles. Mais à travers l'histoire, dans tous les pays du monde, les femmes et les filles sont confrontées à des obstacles supplémentaires et à la discrimination uniquement en raison de leur genre.
